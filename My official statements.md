@@ -2,7 +2,7 @@
 
 This text file is not for public consumption, and is intended simply in order to visibly break NSPM-7 in every possible way so I can intentionally get banned from entry into the United States of America for several years ahead, while also using innocent terminology that is fully fair to use in any coherently functional everyday life setting.
 
-I do not necessarily vouch for all of the statements below. I only vouch for circa 80% of them, and I keep it ambiguous which ones I do/don't.
+I do not necessarily vouch for all of the statements below. I only vouch for circa 85% of them, and I keep it ambiguous which ones I do/don't.
 
 ———————————————————————————————————————————
 
